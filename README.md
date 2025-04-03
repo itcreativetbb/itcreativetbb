@@ -21,7 +21,7 @@ At I.T Creative, we offer a wide range of services to cater to your needs:
 
 We'd love to hear from you! If you have any questions or would like to collaborate, feel free to contact us:
 - **WhatsApp:** [Click Here](https://wa.me/+233557717398)
-- **Email:** info@itcreative.com
+- **Email:** it.creative0@gmail.com
 - **Website:** [www.itcreative.com](http://www.itcreative.com)
 
 ---
